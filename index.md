@@ -1,0 +1,9 @@
+# 4️⃣0️⃣4️⃣Error😔
+## But wait, This is not your fault...
+### 🤔Probable reasons and fixes:
+- 🔄Reload the page
+- ❎The page doesn't exist on this planet or might have been moved to a new URL without proper 301
+- ✅Check the URL for a typo
+- 🚮Delete the browser cache and cookies
+- 🏡Re-Navigate from [Home](https://prithvi2k2.github.io/)
+- #### If nothing mentioned above works, we'll fire🚀 @[prithvi2k2](https://github.com/prithvi2k2) from this planet🌏 ASAP if he doesn't fix it! It's him who broke this link! or never made one!
